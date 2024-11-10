@@ -1,2 +1,2 @@
-# Niveditha Ramesh
-Hello world this is my profile.
+# Niveditha Ramesh.
+Hey there!!
